@@ -2,6 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning more and more about it .
 - 💞️ I’m looking to collaborate with certain companies and I am really willing to learn and I do not give up so easily what I proposed.
+- Email : georgiana_4_all2007@yahoo.com 
 
 <!---
 Gege751/Gege751 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
